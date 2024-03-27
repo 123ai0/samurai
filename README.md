@@ -1,2 +1,0 @@
-# samurai
-technology invention
